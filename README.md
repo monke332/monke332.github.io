@@ -1,6 +1,33 @@
-sigmaboybeszólások.com
-KURVA ANYÁD
-NAGY A FASZ A SZÁDBA
-CSICSKA GECI VAGY
-BOTI AZ EGY BUZI (ez külön neki ment)
+NAGY A KUKIM
+
+
+
+
+
 ANYÁDBA FOGDOSTALAK VOLNA MEG
+
+
+
+
+
+
+SZÉP A FASZOM FOGD MEG
+
+
+
+
+
+
+CIGÁNY GECI VAGY
+
+
+
+
+
+
+AHHHHHHHHH
+
+
+
+
+
