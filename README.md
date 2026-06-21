@@ -1,1 +1,6 @@
-# monke332.github.io
+sigmaboybeszólások.com
+KURVA ANYÁD
+NAGY A FASZ A SZÁDBA
+CSICSKA GECI VAGY
+BOTI AZ EGY BUZI (ez külön neki ment)
+ANYÁDBA FOGDOSTALAK VOLNA MEG
